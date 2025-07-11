@@ -27,4 +27,4 @@
 结语  
 通过选择安全的在线视频平台观看日本AV影片，观众可以享受高清、流畅的播放体验，保障个人隐私和数据安全。  
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/ron676577/javrb14 )</span>
